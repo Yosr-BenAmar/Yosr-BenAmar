@@ -14,7 +14,7 @@ I'm always open to collaboration, interesting ideas, or just a good tech chat. F
 
 📬 Personal inbox: yosrbenamar9@gmail.com
 
-💼 LinkedIn: yosr-ben-amar-577a44207
+💼 LinkedIn: https://www.linkedin.com/in/yosr-ben-amar-577a44207/
   
 
 ---
